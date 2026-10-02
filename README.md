@@ -5,6 +5,8 @@
 
 When this creature enters, it explores, surveil 1
 
+*May all embrace you, a reminder, love is present in different hues*
+
 ---
 
 #### What does it do?
