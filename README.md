@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-#### aabaniel                     1️⃣⚫️⚫️
+#### aabaniel                                                           1️⃣⚫️⚫️
 
 #### Creature - Computer Science Student
 
